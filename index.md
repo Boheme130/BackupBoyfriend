@@ -5,9 +5,9 @@
 <br>
 
 
-作品：The Backup Boyfriend
-作者：River Jaymes
-评分：4.5/5
+作品：The Backup Boyfriend <br>
+作者：River Jaymes <br>
+评分：4.5/5 <br>
 
 和谈了两年的男友Tyler分手后，用情专一的Alec十分苦恼。更糟糕的是，Alec和Tyler是多年好友，两人更是一起开了一家诊所，分手后两人仍为同事十分尴尬。当Alec还在想着挽回Tyler, Tyler却交了新男友。在冲动下，Alec买了一辆老式摩托车打算改变自己，然而对机械一窍不通的他连发动都不知道怎么操作。无奈之下，Alec只能找到经营摩托车店的Dylan让他修车顺便教自己开车。
 
